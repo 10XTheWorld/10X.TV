@@ -4,5 +4,3 @@
 Unlock more ENERGY, MONEY & TIME so you can #10X THE WORLD! 🌏 
 
 FREE #APP + FAIR #CRYPTO 👉 http://10X.TV
-
-Follow on Twitter: https://twitter.com/10XTheWorld
