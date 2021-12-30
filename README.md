@@ -1,4 +1,4 @@
-# 10X.TV
+# 10X.TV - FIT, RICH & HAPPY
 10X helps #ENTREPRENEURS become #FIT, #RICH & #HAPPY 🔥 
 
 Unlock more ENERGY, MONEY & TIME so you can #10X THE WORLD! 🌏 
